@@ -1,7 +1,9 @@
+![tumblr_3e6cfebc3058d8fa96f364fca5a1ff77_20074c9b_500](https://github.com/user-attachments/assets/6ec6e63d-ae7a-445e-8861-49c4da8829ea)
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/a2175105-7bf3-453d-813d-e95b0a27100c)
- : + 🦩🐾 - ★
- ![tumblr_3e6cfebc3058d8fa96f364fca5a1ff77_20074c9b_500](https://github.com/user-attachments/assets/941251bc-e3f9-473f-9dde-62b391bec03b)
-
+ : + 🐬 - 
+ ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/9a0cfdbc-3e92-4b61-9f6a-8402383ebe98)
+![FSyzBSNVEAAj5qw (1)](https://github.com/user-attachments/assets/d2bfe3b6-a465-46d9-9558-74eb15326cf4)
+![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/5506f497-3fd0-4edf-bf38-8dc039cd92f2)
 
 ↓ ZIM - OR + TIX / TOXIC
 
