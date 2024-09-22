@@ -49,7 +49,11 @@ Vy is my mother!
 ![0143-webkinz](https://github.com/user-attachments/assets/ffeb9a8e-a926-4e33-a50b-a8055bcfbfa1)
 ![blinkiesCafe-bR](https://github.com/user-attachments/assets/5ade0ed2-ad36-4e14-aeb2-81744014233d)![0046-leo](https://github.com/user-attachments/assets/183a7d48-3342-4d44-8d0e-a3bcd2281f46)
  ![blinkiesCafe-GK](https://github.com/user-attachments/assets/051db311-948e-475e-b6ae-6a0a70f98ff6)![0183-pastelpinkwings](https://github.com/user-attachments/assets/3dd8a096-7184-4654-b248-845a8186d9ed)
- 
+
+![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/8ec448ff-85c4-4b70-bc9d-ffb8d5ba96ab)
+
+ ![2d134c15-4c0b-49a6-806f-0da7f6b2ca90-profile_banner-480 (1)](https://github.com/user-attachments/assets/eab1a130-918b-4814-bb9c-e460747ba190)
+
 ![tumblr_3e6cfebc3058d8fa96f364fca5a1ff77_20074c9b_500](https://github.com/user-attachments/assets/fdb7da7f-88c9-4f34-85ee-7ae104d5bc06)
 
 
