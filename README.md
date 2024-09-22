@@ -1,11 +1,12 @@
 ![tumblr_3e6cfebc3058d8fa96f364fca5a1ff77_20074c9b_500](https://github.com/user-attachments/assets/6ec6e63d-ae7a-445e-8861-49c4da8829ea)
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/a2175105-7bf3-453d-813d-e95b0a27100c)
- : + 🐬 - 
+ : + 🐬 - INTRO (PLZ READ BYI)
  ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/9a0cfdbc-3e92-4b61-9f6a-8402383ebe98)
 ![FSyzBSNVEAAj5qw (1)](https://github.com/user-attachments/assets/d2bfe3b6-a465-46d9-9558-74eb15326cf4)
 ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/5506f497-3fd0-4edf-bf38-8dc039cd92f2)
 
-↓ ZIM - OR + TIX / TOXIC
+![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/60f3d1e1-d9f1-4480-82d8-1fc79ce986f4)
+: ZIM - OR + TIX / TOXIC
 
 ![0188-knifechainsaw](https://github.com/user-attachments/assets/6a526e18-a42c-4d36-acb7-cbcf01ccdf4a)
 
@@ -16,10 +17,12 @@
 
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/82983c35-d8ad-48b9-9a44-04730adcf2ce) : + USUALLY NEAR DOCKS OR HANGING OUT WITH A FRIEND „ COME INT WITH US WE DON'T BITE ! ![tumblr_43582a444131d15f09f3c91d5a1ec7ea_7df1de82_250](https://github.com/user-attachments/assets/2a0982c4-1203-4420-bebf-3c44485417d2)
 
-« ENDOGENIC SYSTEM ; TULPA / ENDOS DNI + 
+![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/d3dd6cf6-cdf6-4587-af3a-2b390bceaa93)
+ : ENDOGENIC SYSTEM ; TULPA / ENDOS DNI + 
 ![tumblr_8d2e2c2de91bf9474ae99911881e1bc7_56c4f52d_540](https://github.com/user-attachments/assets/7d8619ca-217a-408d-ad11-9881081eda51)
 
- EXTRA INFO ABOUT ME! { 🦩 } 
+ ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/c2dda1ff-d994-44b7-b8d3-b04eceede21d)
+: EXTRA INFO ABOUT ME! { 🦩 } 
  ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/3bbb9c28-95a0-4c0d-9d29-6a9c078a5289)
 
 
@@ -29,7 +32,7 @@ our system is called ; " The Star Catcher System " !
 
 Vy is my mother! 
 
-![tumblr_3e6cfebc3058d8fa96f364fca5a1ff77_20074c9b_500](https://github.com/user-attachments/assets/6703cc25-5c7a-49b9-a4f5-589190fd31f7)
+![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/791f8bf9-bd7f-4e13-80d3-7d0e35465a3c)
 
 ![0138-greenglow](https://github.com/user-attachments/assets/d4a6b64b-ddcd-4d94-8eed-7f134025805e)
 ![0171-jerma](https://github.com/user-attachments/assets/a7f63515-59d5-44bf-9a58-622f1af01145)
@@ -46,6 +49,8 @@ Vy is my mother!
 ![0143-webkinz](https://github.com/user-attachments/assets/ffeb9a8e-a926-4e33-a50b-a8055bcfbfa1)
 ![blinkiesCafe-bR](https://github.com/user-attachments/assets/5ade0ed2-ad36-4e14-aeb2-81744014233d)![0046-leo](https://github.com/user-attachments/assets/183a7d48-3342-4d44-8d0e-a3bcd2281f46)
  ![blinkiesCafe-GK](https://github.com/user-attachments/assets/051db311-948e-475e-b6ae-6a0a70f98ff6)![0183-pastelpinkwings](https://github.com/user-attachments/assets/3dd8a096-7184-4654-b248-845a8186d9ed)
+ 
+![tumblr_3e6cfebc3058d8fa96f364fca5a1ff77_20074c9b_500](https://github.com/user-attachments/assets/fdb7da7f-88c9-4f34-85ee-7ae104d5bc06)
 
 
 
