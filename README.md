@@ -16,24 +16,26 @@ ${\textsf{\color{Green}: ZIM - OR + TIX / TOXIC ⚝}}$
 
 ![IMG_20240921_212453980](https://github.com/user-attachments/assets/77f77310-91b7-4713-8ed5-74d18930ab81)
 
-{ 🐾 ⚝ } IT/XE/XIR/XENOS + HE/HIM IS FINE
+${\textsf{\color{Yellow} { 🐾 ⚝ } IT/XE/XIR/XENOS + HE/HIM IS FINE}}$
 
-![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/82983c35-d8ad-48b9-9a44-04730adcf2ce) : + USUALLY NEAR DOCKS OR HANGING OUT WITH A FRIEND „ COME INT WITH US WE DON'T BITE ! ![tumblr_43582a444131d15f09f3c91d5a1ec7ea_7df1de82_250](https://github.com/user-attachments/assets/2a0982c4-1203-4420-bebf-3c44485417d2)
+![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/82983c35-d8ad-48b9-9a44-04730adcf2ce)${\textsf{\color{Blue}: + USUALLY NEAR DOCKS OR HANGING OUT WITH A FRIEND „ COME INT WITH US WE DON'T BITE !}}$![tumblr_43582a444131d15f09f3c91d5a1ec7ea_7df1de82_250](https://github.com/user-attachments/assets/2a0982c4-1203-4420-bebf-3c44485417d2)
 
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/d3dd6cf6-cdf6-4587-af3a-2b390bceaa93)
- : ENDOGENIC SYSTEM ; TULPA / ENDOS DNI ⚝
+ ${\textsf{\color{Orange}: ENDOGENIC SYSTEM ; TULPA / ENDOS DNI ⚝}}$
 ![tumblr_8d2e2c2de91bf9474ae99911881e1bc7_56c4f52d_540](https://github.com/user-attachments/assets/7d8619ca-217a-408d-ad11-9881081eda51)
 
  ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/c2dda1ff-d994-44b7-b8d3-b04eceede21d)
-: ⚝ EXTRA INFO ABOUT ME! { 🦩 } 
+${\textsf{\color{Purple}: ⚝ EXTRA INFO ABOUT ME! { 🦩 }}}$
  ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/3bbb9c28-95a0-4c0d-9d29-6a9c078a5289)
 
 
-pansexual + transgender! 
+${\textsf{\color{Red}pansexual + transgender!}}$
 
-our system is called ; " The Star Catcher System " ! 
+${\textsf{\color{Orange}our system is called ; " The Star Catcher System " !}}$
 
-Vy is my mother! 
+${\textsf{\color{Yellow}Kaden FumbleBottom IRL / Clinten IRL}}$
+
+${\textsf{\color{Green}Vy is my mother!}}$ 
 
 ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/791f8bf9-bd7f-4e13-80d3-7d0e35465a3c)
 
