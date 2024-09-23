@@ -1,31 +1,31 @@
-![image63](https://github.com/user-attachments/assets/5cea7ada-abd2-471d-83a4-787b133ce32c)
+ ![image63](https://github.com/user-attachments/assets/5cea7ada-abd2-471d-83a4-787b133ce32c)
 
 
 ![tumblr_3e6cfebc3058d8fa96f364fca5a1ff77_20074c9b_500](https://github.com/user-attachments/assets/6ec6e63d-ae7a-445e-8861-49c4da8829ea)
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/a2175105-7bf3-453d-813d-e95b0a27100c)
- : + 🐬 - INTRO (PLZ READ BYI)
+ : ⚝ + 🐬 - INTRO (PLZ READ BYI)
  ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/9a0cfdbc-3e92-4b61-9f6a-8402383ebe98)
 ![FSyzBSNVEAAj5qw (1)](https://github.com/user-attachments/assets/d2bfe3b6-a465-46d9-9558-74eb15326cf4)
 ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/5506f497-3fd0-4edf-bf38-8dc039cd92f2)
 
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/60f3d1e1-d9f1-4480-82d8-1fc79ce986f4)
-: ZIM - OR + TIX / TOXIC
+: ZIM - OR + TIX / TOXIC ⚝
 
 ![0188-knifechainsaw](https://github.com/user-attachments/assets/6a526e18-a42c-4d36-acb7-cbcf01ccdf4a)
 
 
 ![IMG_20240921_212453980](https://github.com/user-attachments/assets/77f77310-91b7-4713-8ed5-74d18930ab81)
 
-{ 🐾 } IT/XE/XIR/XENOS + HE/HIM IS FINE
+{ 🐾 ⚝ } IT/XE/XIR/XENOS + HE/HIM IS FINE
 
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/82983c35-d8ad-48b9-9a44-04730adcf2ce) : + USUALLY NEAR DOCKS OR HANGING OUT WITH A FRIEND „ COME INT WITH US WE DON'T BITE ! ![tumblr_43582a444131d15f09f3c91d5a1ec7ea_7df1de82_250](https://github.com/user-attachments/assets/2a0982c4-1203-4420-bebf-3c44485417d2)
 
 ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/d3dd6cf6-cdf6-4587-af3a-2b390bceaa93)
- : ENDOGENIC SYSTEM ; TULPA / ENDOS DNI + 
+ : ENDOGENIC SYSTEM ; TULPA / ENDOS DNI ⚝
 ![tumblr_8d2e2c2de91bf9474ae99911881e1bc7_56c4f52d_540](https://github.com/user-attachments/assets/7d8619ca-217a-408d-ad11-9881081eda51)
 
  ![tumblr_ee2c838eabf172c02f23dc80bea9ff35_c2251e68_75](https://github.com/user-attachments/assets/c2dda1ff-d994-44b7-b8d3-b04eceede21d)
-: EXTRA INFO ABOUT ME! { 🦩 } 
+: ⚝ EXTRA INFO ABOUT ME! { 🦩 } 
  ![tumblr_c678a449efadbc444dbd8726ae9e99fc_4ea30705_640](https://github.com/user-attachments/assets/3bbb9c28-95a0-4c0d-9d29-6a9c078a5289)
 
 
